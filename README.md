@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=foxl0re&label=𓄃&color=e3b746)
 
-follow [main.](https://github.com/PIRAGE)
+follow [main.](https://github.com/HAWTH0RNE)
 
 <img width="716" height="22" alt="IMG_8533" src="https://github.com/user-attachments/assets/01584847-2082-4ece-8e47-2ed5ddbf5d50" />
 
